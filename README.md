@@ -4,7 +4,7 @@
 - 💞️ I am looking for cooperation in programming and am ready to develop and participate in projects for free))
 - 📫 You can contact me by mail
 - 😄 Pronouns: He
-- ⚡ When I was little, I called milk "Green Whitebait"
+- ⚡ When I was little, I called milk "Green milk"
 
 <!---
 VardMik/VardMik is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
